@@ -10,10 +10,6 @@
 [carrd](https://ghostlady.carrd.co)⠀
 [linktree](https://linktr.ee/ghostlysorrows)
 &nbsp;&nbsp;
-
-
-<p align="center"> <sub> art by : reverse 1999
-<!--
 **apparitional-joice/apparitional-joice** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
