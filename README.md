@@ -1,4 +1,4 @@
-![image](https://preview.redd.it/reverse-1999-vertin-x-schneider-v0-8n500gfufkxb1.jpg?auto=webp&s=3be0b6a4268f2cc097b2ea07091dc7fb036088c4)
+![image](https://github.com/user-attachments/assets/346af380-d6a1-488a-9dc2-05a064738990)
 
 
 <p align="center"> <sub>
