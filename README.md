@@ -1,4 +1,4 @@
-![image](https://64.media.tumblr.com/e4894350a68f17878e01807e50a6c9dd/8e8d04990088b579-dc/s400x600/45d7cda1a53d9b12e7e2c1b5bd3737046f9d1a5c.pnj)
+![image](https://static.wikia.nocookie.net/reverse1999/images/4/4a/Kakania_Garment3.png/revision/latest/scale-to-width-down/450?cb=20260110165224)
 
 
 
