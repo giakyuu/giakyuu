@@ -8,7 +8,7 @@
 <div align="center">
 
 &nbsp;&nbsp;
-[straw](https://puppiess.straw.page/)⠀
+[straw](https://stilzasiblings.straw.page/)
 [carrd](https://tokomaruu.carrd.co/) &nbsp;
 [linktree](https://linktr.ee/ghostlysorrows)
 &nbsp;&nbsp;
