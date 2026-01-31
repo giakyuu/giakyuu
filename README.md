@@ -3,7 +3,8 @@
 
 <div align="center">
 
- ་།ㅤㅤKnow ... myself? .⠐✿
+་།ㅤKnow ... myself? .⠐✿
 
- ་།   c+h/int is okay ꒷ sometimes offtab/afk - w2i ✿
-&nbsp;  ་།  dnc ꒷ inspo is okay ✿
+་། c+h/int is okay ꒷ sometimes offtab/afk - w2i ✿
+
+་། dnc ꒷ inspo is okay ✿
