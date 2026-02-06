@@ -3,8 +3,17 @@
 
 <div align="center">
 
-་།ㅤKnow ... myself? .⠐✿
+✧ . c+h/int is okay ꒷ sometimes offtab/afk - w2i ᵎᵎ
 
-་། c+h/int is okay ꒷ sometimes offtab/afk - w2i ✿
+✧ . dnc ꒷ inspo is okay ᵎᵎ
 
-་། dnc ꒷ inspo is okay ✿
+<div align="center">
+
+  ✿ ୭ ˚ links : [ataboo](https://empool.atabook.org)&nbsp;𓏵
+[strawp](https://stilzasiblings.straw.page/)&nbsp;𓏵
+[rentry](https://rentry.co/ghostly-sorrowss)&nbsp; ⸝⸝ ꒷
+
+&nbsp;&nbsp; ✿ ୭ ˚ ♡ : 
+[prns.cc](https://pronouns.cc/@ghostly-sorrows) 𓏵
+[lovemail](https://lovemailz.carrd.co) 
+&nbsp; ⸝⸝ ꒷
